@@ -4,7 +4,7 @@
 
 Welcome to the world, **Jenna Martin Walsh**!
 
-She's 6lbs 12oz, and as delivered by C-section May 18th at 7am.
+She's 6lbs 12oz, and was delivered by C-section May 18th at 7am.
 
 We are all grateful to be healthy, and we're recovering.
 
